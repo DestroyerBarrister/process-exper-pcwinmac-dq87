@@ -1,4 +1,4 @@
-# 
+# Profesional Process Explorer flujo de trabajo para Mac OS | Inteligente Process Explorer flujo de trabajo para PC Windows. Con soporte multi-formato y optimización de red — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
